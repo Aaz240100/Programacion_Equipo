@@ -13,3 +13,6 @@ https://youtube.com/shorts/KMtgIrZEmcM
 https://youtu.be/oXZIMv43bQ0 
 3. LED Y SONIDO  https://youtube.com/shorts/VZVfPtd57y8 
 4. SENSOR DE AGUA   https://youtu.be/fzzfOxCHXAE
+
+PROYECTO FINAL
+PIANO CAPACITIVO https://youtube.com/shorts/AxBJkVIeNJ4
